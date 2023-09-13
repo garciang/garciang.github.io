@@ -1,1 +1,0 @@
-# garciang.github.io
